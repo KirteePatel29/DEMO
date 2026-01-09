@@ -1,3 +1,4 @@
 # DEMO
-Hii there my self Kirtee Patel 
-Currently Persuing  Master's in computer application from Parul University wth 8 CGPA
+Hii there 
+My self Kirtee Patel 
+Currently Persuing Master's in computer application from Parul University with 8 CGPA
